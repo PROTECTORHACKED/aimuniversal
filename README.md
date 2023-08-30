@@ -1,2 +1,0 @@
-# zalgiprantasyahputra
-Tools Kita Bersama
